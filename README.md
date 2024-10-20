@@ -1,4 +1,4 @@
-### Hi there 👋
+### (✿╹◡╹) 👋
 
 <!--
 **S1aury/S1aury** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
